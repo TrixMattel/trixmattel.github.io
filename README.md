@@ -18,6 +18,10 @@ I am 28, originally from Houston, TX, and moved to Clayton in 2022. I have two p
 ## My Interests
 My stable interests are Big Brother, music, soccer, and football. I'm currently watching season 26 of Big Brother as it broadcasts, as well as keeping up on the live feeds (Angela stan). For music, I frequent forums for whatever genre or artist I'm delving into, and rely on (online) word of mouth for recent releases. Due to poor streaming archival for several albums I enjoy, I keep a local copy of all music I enjoy on my phone in an SD card.  
 ![Godgela](https://static.wikia.nocookie.net/bigbrother/images/3/3b/US26_Angela_Large.jpg/revision/latest?cb=20240724000606)
+
+> "Put her on Mount Rushmore!"
+Someone, somewhere, I'm sure.
+
 More recent interests I've had are:
 * News reading *(I consider this a hobby as I feel it takes effort to stay informed)*  
   * Has led into a very, very, **very** amateur interest in chip making technologies and methods.
